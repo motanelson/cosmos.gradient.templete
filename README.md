@@ -1,1 +1,4 @@
-rtf compiles to .rtfcx
+https://oldcomputers.net/datapoint-2200.html
+
+
+
